@@ -1,1 +1,0 @@
-# linkacc.githup.io
